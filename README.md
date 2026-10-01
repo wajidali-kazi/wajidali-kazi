@@ -1,5 +1,5 @@
 #  Hi 👋, I'm WajidAli Kazi
-**A passionate Software Engineer || Data Analyticas || SQL || Python || PowerBI || Azure || ETL**
+**A Passionate Software Engineer || Data Analyticas || SQL || Python || PowerBI || Azure || ETL**
 
 Email  👉 ✉️ **wajidkazi147@gmail.com**. 😊😊
 ## 🌐 Socials:
